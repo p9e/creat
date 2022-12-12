@@ -1,1 +1,1 @@
-# [&vellip;](index.html)
+# [curious](index.html)
